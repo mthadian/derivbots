@@ -1,4 +1,5 @@
 # freeTradingBots
+Password for ENHANCED AUTO C4 VOLT 🇬🇧 3 🇬🇧 AI PREMIUM 🤖 is Ac4@Volt
 This is a repository for free bots that you can use to trade at your own discretion and earn millions.
 
 Free Trading Bots Repository: Automate Your Trading Strategies
